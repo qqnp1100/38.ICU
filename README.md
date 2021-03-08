@@ -1,2 +1,3 @@
 # 38.ICU
-Please note that there exists NO other official account, app or merchandise except for the official domain and this repository.
+
+# 有多少公司38妇女节不放假，姐妹们在Issues把它冲了
